@@ -1,0 +1,1 @@
+Wiki used for jp lol
