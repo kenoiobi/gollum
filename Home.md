@@ -1,1 +1,1 @@
-This is a wiki project for chinese/japanese
+This is a wiki project for japanese
